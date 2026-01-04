@@ -1,5 +1,5 @@
 
-# Session Transcript by Gemini 3.0
+# [Session](https://ukb-dt.github.io/mcgilchrist-XX/) Transcript by Gemini 3.0
 
 ## User
 
